@@ -1,0 +1,1 @@
+# weekly_market_trend_news
